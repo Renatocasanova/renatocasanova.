@@ -1,1 +1,1 @@
-# Seja Beem vindo 🫶.
+# Seja Bem vindo 🫶.
